@@ -24,6 +24,6 @@ would not describe the pad as muddy but rather more of a dragging feeling
 
 doing anything above 50cm gets difficult as the pad never really lets you go
 
-feels great at anything static or tac shooter related at 60cm> ttest
+feels great at anything static or tac shooter related at 60cm>
 
 #matrova
